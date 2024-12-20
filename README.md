@@ -8,15 +8,14 @@
 - Seth/Kyle, Anyone friends with,+ associated with included, Minus JuJu. reasoning: ~~traumabond ex + friends w Kilo and the person he cheated on me with again~~
 - [Kilo](https://docs.google.com/document/d/1sbPk6Lbz1WlNXDhX_iy1KCiK76hT8tJYvRlX5CgWKUA/edit?tab=t.0), Anyone friends with,+ associated with included.
 - Cartman, Master Shake, Rick skins / doubles. Skins are okay IF CLOSE.
-- Rickorty / Morty x Planetina shippers..
 - Meatwad ships (I know hes not a minor it just makes me uncomfy), or if you think shakelock is a proship.
 - Gravity Falls fandom unless I interact first
 - Morty fictives / skins, (I'm sorry im loyal to MY Morty)
-- If you think Jerrick is a proship (I will go on a FULL RANT on how its NOT)
+- If you think Jerrick is a proship (I will go on a FULL RANT on how its NOT.)
 ## INTERACT !!!! 
 - Shakelock / Jerrick / Vanderbell Shippers !!
 - Like the same fandoms and stuff as me
 - Listeners / willing to listen to me rant
 - If you tolerate me being clingy / talkative +etc
-- If you wanna be friends, or your friends with Morty
+- If you wanna be friends, or your friends with my Morty
 ![banner3](https://media.discordapp.net/attachments/1319074753880788995/1319550919691599882/Untitled3_20241219232259.png?ex=67665f0f&is=67650d8f&hm=cc9d26a5447f4481bddbaaa1c34ae14c48e9c60be38826eae393dae5fab2a2bc&=&format=webp&quality=lossless&width=920&height=517)
