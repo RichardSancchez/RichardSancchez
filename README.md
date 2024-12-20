@@ -23,6 +23,7 @@ byf me be warned that I have [BPD](https://www.mayoclinic.org/diseases-condition
 ### SHOWS
 - Rick and Morty
 - Aqua Teen Hunger Force
+- South Park
 - Solar Opposites
 - Gravity Falls
 - Dont Hug Me I'm Scared
