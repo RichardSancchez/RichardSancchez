@@ -5,13 +5,14 @@
 `byf me be warned that I have BPD, PTSD, Autism, ADHD, CSB, +etc. I JOKE sexually with / around close friends as a coping mechanism. I am in THERAPY and working on myself to get better. Please be friends with me / talk to me.`
 ![banner2](https://media.discordapp.net/attachments/1319074753880788995/1319550919993593926/Untitled3_20241219232248.png?ex=67665f0f&is=67650d8f&hm=87ed78e436e985f2084351ffe2410a7f8130589bbbfd6d8f7c67b0234cf28cb6&=&format=webp&quality=lossless&width=920&height=517)
 ## [Basic DNI](https://listography.com/dontinteract), other than that interact as you wish. I block freely. Personal DNI list below.
-- Seth/Kyle, Anyone friends with,+ associated with included, Minus JuJu. reasoning: ~~traumabond ex + friends w Kilo again~~
+- Seth/Kyle, Anyone friends with,+ associated with included, Minus JuJu. reasoning: ~~traumabond ex + friends w Kilo and the person he cheated on me with again~~
 - [Kilo](https://docs.google.com/document/d/1sbPk6Lbz1WlNXDhX_iy1KCiK76hT8tJYvRlX5CgWKUA/edit?tab=t.0), Anyone friends with,+ associated with included.
 - Cartman, Master Shake, Rick skins / doubles. Skins are okay IF CLOSE.
 - Rickorty / Morty x Planetina shippers..
 - Meatwad ships (I know hes not a minor it just makes me uncomfy), or if you think shakelock is a proship.
 - Gravity Falls fandom unless I interact first
 - Morty fictives / skins, (I'm sorry im loyal to MY Morty)
+- If you think Jerrick is a proship (I will go on a FULL RANT on how its NOT)
 ## INTERACT !!!! 
 - Shakelock / Jerrick / Vanderbell Shippers !!
 - Like the same fandoms and stuff as me
