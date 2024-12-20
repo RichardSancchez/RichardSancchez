@@ -44,7 +44,6 @@ byf me be warned that I have [BPD](https://www.mayoclinic.org/diseases-condition
 - Alex G
 - "Weird Al" Yankovic
 - Punk rock
-- TOO MUCH MORE
 ### OTHER
 - Psychology + Science
 - Art
