@@ -9,4 +9,4 @@
 - [Kilo](https://docs.google.com/document/d/1sbPk6Lbz1WlNXDhX_iy1KCiK76hT8tJYvRlX5CgWKUA/edit?tab=t.0), Anyone friends with,+ associated with included.
 - Cartman, Master Shake, Rick skins / doubles. Skins are okay IF CLOSE.
 - Rickorty / Morty x Planetina shippers..
-- Meatwad ships, or if you think shakelock is a darkship.
+- Meatwad ships(I know hes not a minor it just makes me uncomfy), or if you think shakelock is a proship.
