@@ -9,6 +9,7 @@ byf me be warned that I have [BPD](https://www.mayoclinic.org/diseases-condition
 - [Kilo](https://docs.google.com/document/d/1sbPk6Lbz1WlNXDhX_iy1KCiK76hT8tJYvRlX5CgWKUA/edit?tab=t.0), Anyone friends with,+ associated with included.
 - Cartman, Master Shake, Rick skins / doubles. Skins are okay IF CLOSE.
 - Gravity Falls fandom unless I interact first
+- Rickorty... ewie..
 ## INTERACT !!!! ![me](https://media.discordapp.net/attachments/1319074753880788995/1319644787707609140/tumblr_5b9b195d46d089b55835ec7422e23ca1_490cc2d4_75.png?ex=6766b67b&is=676564fb&hm=ef91901c5bc8443e6c2432e2a605f2edd8f6269320bfbce3e5c83fee474ef18e&=&format=webp&quality=lossless&width=46&height=51)
 - Like the same fandoms and stuff as me
 - Listeners / willing to listen to me rant
