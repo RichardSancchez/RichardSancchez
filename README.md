@@ -5,7 +5,7 @@
 byf me be warned that I have [BPD](https://www.mayoclinic.org/diseases-conditions/borderline-personality-disorder/symptoms-causes/syc-20370237), [PTSD](https://www.mayoclinic.org/diseases-conditions/post-traumatic-stress-disorder/symptoms-causes/syc-20355967#:~:text=Post%2Dtraumatic%20stress%20disorder%20(PTSD)%20is%20a%20mental%20health,uncontrollable%20thoughts%20about%20the%20event.), [ASD](https://www.mayoclinic.org/diseases-conditions/autism-spectrum-disorder/symptoms-causes/syc-20352928), [ADHD](https://www.mayoclinic.org/diseases-conditions/adult-adhd/symptoms-causes/syc-20350878), [CSB](https://www.mayoclinic.org/diseases-conditions/compulsive-sexual-behavior/symptoms-causes/syc-20360434), +etc. I JOKE sexually with / around close friends as a coping mechanism. I have a temper issue and I can come off as blunt or passive agressive.
 ![banner2](https://media.discordapp.net/attachments/1319074753880788995/1319550919993593926/Untitled3_20241219232248.png?ex=67665f0f&is=67650d8f&hm=87ed78e436e985f2084351ffe2410a7f8130589bbbfd6d8f7c67b0234cf28cb6&=&format=webp&quality=lossless&width=920&height=517)
 ## [Basic DNI](https://listography.com/dontinteract), other than that interact as you wish. I block freely. Personal DNI list below.
--  Anyone friends with + associated with Seth/Kyle. reasoning: traumabond ex + friends w Kilo and the person he cheated on me with again 
+-  Anyone friends with + associated with Seth/Kyle. reasoning: ex + friends w Kilo and Kailey
 - [Kilo](https://docs.google.com/document/d/1sbPk6Lbz1WlNXDhX_iy1KCiK76hT8tJYvRlX5CgWKUA/edit?tab=t.0), Anyone friends with,+ associated with included.
 - Cartman, Master Shake, Rick skins / doubles. Skins are okay IF CLOSE.
 - Gravity Falls fandom unless I interact first
