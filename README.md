@@ -19,6 +19,7 @@ byf me be warned that I have [BPD](https://www.mayoclinic.org/diseases-condition
 ### SHOWS
 - Rick and Morty
 - Aqua Teen Hunger Force
+- Dexter
 - South Park
 - Solar Opposites
 - Gravity Falls
