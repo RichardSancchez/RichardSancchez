@@ -15,9 +15,10 @@ ___
 ___
 
 ### Interests ᵎᵎ 
-- Red Dead Redemption, Ask 4 online user
+- Red Dead Redemption, Ask 4 online user, FNaF, Multiversus
 - Rick and Morty, Metalocalypse, Aqua Teen Hunger Force, South Park, pen15
 - Dont Hug Me Im Scared, Gravity Falls (fandom dni u make me ashamed to like the show...)
+- Bad Boys, Jurassic Park, Scream
 - Psychology, forensics, science idk
 - Anatomy, character study, Art, Music, games.
 - OTP Ships: Jerrick(R&M), Vanderbell(RDR), Kyman(SP)
